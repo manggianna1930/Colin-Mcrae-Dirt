@@ -218,4 +218,4 @@ Colin McRae DIRT is available as a full free version with all features and updat
 Don't miss out on the chance to drive like a pro! Download Colin McRae DIRT today and unleash your inner rally champion!
 
 ---
-**Last updated:** 2026-10-12 19:27:10 UTC
+**Last updated:** 2026-10-13 01:40:52 UTC
